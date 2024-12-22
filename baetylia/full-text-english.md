@@ -42,7 +42,7 @@ In another place* Damascius says that, in the vicinity of the Syrian Heliopolis,
 
 From Damascius is derived the wisdom we find in the _Etymologicum Magnum_, and in Zonaras, Βαίτυλος, λίθος γενόμενος κατὰ τὸν Λίβανον τὸ ὄρος τῆς Ἡλιουπόλεως.
 
-A Christian writer of uncertain date, Joseph, the author of the _Hypomnesticon_,* in a chapter on various forms of pagan divination, writes: χρηστήρια διαβόητα παρ᾽ αὐτοῖς ἐστι τὰ ἐν τοῖς ναοῖς βαιτύλια διὰ λίθων ἐν τοῖς στοιχείοις προσρασσάντων.*
+A Christian writer of uncertain date, Joseph, the author of the _Hypomnesticon_,* in a chapter on various forms of pagan divination, writes: χρηστήρια διαβόητα παρ' αὐτοῖς ἐστι τὰ ἐν τοῖς ναοῖς βαιτύλια διὰ λίθων ἐν τοῖς στοιχείοις προσρασσάντων.*
 
 *) First printed in Fabricius, _Codex Pseudepigraphus V. T._ 2, 326 ff., then by Galland, _Bibl. Vet. Patr._ 14, 3 ff., Migne, _Patrol. Graeca_, 106, 16 ff.
 
